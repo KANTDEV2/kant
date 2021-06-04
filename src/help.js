@@ -11,7 +11,7 @@ const help = (prefix) => {
  *PREFIXO*:[ / ]
  ▬▬▬▬▬▬▬【☪】▬▬▬▬▬▬▬
  *WHATSAPP*: wa.me/+5571982507697
- *WHATSAPP*: wa.me/+557182507697
+ *WHATSAPP*: wa.me/+5532999114579
  ▬▬▬▬▬▬▬【☪】▬▬▬▬▬▬▬
  VERSÃO V3 BOT KANT ATUALIZADO
 ATUALIZADO POR KANT LS
