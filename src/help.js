@@ -265,8 +265,8 @@ Mandar a msg sem o prefixo
 
  *𝗡𝗢𝗠𝗘: K A N T
  *𝗪𝗣𝗣: wa.me/+5571982507697
-  NOTA ⚠️: 𝐾𝐴𝑁𝑇 𝐿𝑆 O MAIS BRABO DAS EDITS         
-EITANNMMMMMMMMMMMMMM⚠️  𝐾𝐴𝑁𝑇 𝐿𝑆⚠️😔️
+  NOTA ⚠️: KAROL INSANA DMS NAO DA ♥️
+  ⚠️  KAROL⚠️😔️
 
 
 
